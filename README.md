@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @nandhinikasoji
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently prusuing my B.Tech from sridevi womens engineering college
-- 📫 How to reach me https://www.instagram.com/nandhinikasoji/?hl=en
 - 😄 Pronouns: she/her
 
 <!---
